@@ -1,0 +1,5 @@
+- 👋 Olá, meu nome é Leandro Maiolli Junior
+- 👀 Meu maior interrese é ser feliz
+- 🌱 I’m currently learning  compu
+- 💞️ Ultimamente pensando no meu futuro
+- 📫 Meu contado de emai-l leandro.maiolli.junior@escola.pr.gov.br
